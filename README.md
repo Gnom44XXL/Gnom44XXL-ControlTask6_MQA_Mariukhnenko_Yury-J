@@ -1,0 +1,1 @@
+# Gnom44XXL-ControlTask6_MQA_Mariukhnenko_Yury-J
